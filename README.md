@@ -14,4 +14,4 @@ precious metals and rare coins and currency.
 The Study of Numismatics in a sense has become a lost art, which is why we need to bring to light in the great digital era.
 At Moneta® we want to make Numismatics Great Again by bringing it into the digital frontier.
 
-Copyright, All Rights Reserved, Moneta® 2021
+Moneta® LLC, Copyright All Rights Reserved 2021
